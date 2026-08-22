@@ -1,6 +1,6 @@
 ⋆｡‧˚ʚ🍓ɞ˚‧｡⋆  hai its me call me karl/karlie ⋆
 
-I love funning my house ⋆. 𐙚 ˚  
+I love funning my house!!!!!! manny fictkin ⋆. 𐙚 ˚  
 ﹌﹌ ﹌﹌ ﹌﹌ ﹌﹌ ﹌﹌  .
 
 ᶻ 𝗓 𐰁 .ᐟmoonflower,,strawberrycookie,,fruitcake,,moonshell DNI -moonberry,, manton INT
