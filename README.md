@@ -20,4 +20,4 @@ Art not by me;, Irig / @Lrigreddahc on X
 
  .  .  ;;disc-@vulprith       
  
-, check sp / moonberry fans pls int ,,
+, check sp / 
