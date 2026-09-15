@@ -24,4 +24,7 @@ im mostly like,, on top of spawn on that cliff if im not im near the bakery whic
 , check sp 
 
 IM UMAS NUMBER ONE FAN I LOVE UMA SHES ME IM HER I LOVE YOU UMA MORE UMA CONTENT WHEN. I NEED UMA WHEN WILL UMA BE PLAYABLE I LOVE YOU UMAA
+
 <img width="671" height="432" alt="Screenshot 2026-09-15 104109" src="https://github.com/user-attachments/assets/5ccb8e36-dbb0-4dd7-a91f-c8a2fd60da3f" />
+
+hi this me im uma funhouse those who know uma i love u uma.
