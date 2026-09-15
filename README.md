@@ -13,11 +13,11 @@ Art not by me;, Irig / @Lrigreddahc on X
 ─── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ───── ⋆⋅𖤐⋅⋆ ──────  ..
 
 
-🌙🍓,
+🌙🍓,🐜🍕 im not in the dw fandom anymore i just still like moonberry,,a bit.dont tell rowan🫣🫢🤫🤫🤫🤫
 
 
-. minor!!!!! /weirdos DNI/genderfluid . ,     
+. minor/weirdos DNI/genderfluid . ,     
 
- .  .  ;;disc-@vulprith       
+ .  .  ;disc-@vulprith       
  
-, check sp / 
+, check sp 
