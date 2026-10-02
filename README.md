@@ -19,7 +19,7 @@ im mostly like,, on top of spawn on that cliff if im not im near the bakery whic
 
 . minor/weirdos DNI/genderfluid . ,     
 
- .  .  ;disc-@vulprith       
+ .  .      
  
 , check sp 
 
